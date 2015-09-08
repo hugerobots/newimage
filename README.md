@@ -1,1 +1,1 @@
-# newimage
+# New Image College
